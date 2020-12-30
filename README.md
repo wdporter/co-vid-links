@@ -27,7 +27,7 @@ https://nonvenipacem.com/2020/12/07/yall-really-need-to-understand-how-mrna-vacc
 ---
 
 Why face masks don't work, 
-https://www.oralhealthgroup.com/features/face-masks-dont-work-revealing-review/
+https://www.oralhealthgroup.com/features/face-masks-dont-work-revealing-review/  
 http://web.archive.org/web/20170612102531/https://www.oralhealthgroup.com/features/face-masks-dont-work-revealing-review/
 
 ---
