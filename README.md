@@ -25,4 +25,9 @@ bio-technology and bio-engineering. In short, it is genetic modification.
 https://nonvenipacem.com/2020/12/07/yall-really-need-to-understand-how-mrna-vaccines-are-designed-and-executed-youre-not-going-to-like-it/
 
 ---
-    
+
+Why face masks don't work, 
+https://www.oralhealthgroup.com/features/face-masks-dont-work-revealing-review/
+http://web.archive.org/web/20170612102531/https://www.oralhealthgroup.com/features/face-masks-dont-work-revealing-review/
+
+---
