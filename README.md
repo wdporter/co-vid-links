@@ -37,13 +37,13 @@ http://web.archive.org/web/20170612102531/https://www.oralhealthgroup.com/featur
 
 https://thefreedomarticles.com/10-reasons-sars-cov-2-imaginary-digital-theoretical-virus/
 
- 1 SARS-CoV-2 the Theoretical Virus: The Virus Has Never Been Isolated According to Koch’s Postulates or River’s Postulates
- 2 SARS-CoV-2 the Theoretical Virus: Top Chinese Scientist Admitted They Never Isolated the Virus
- 3 SARS-CoV-2 the Theoretical Virus: CDC Stated No Quantified Isolate Was Available
- 4 SARS-CoV-2 the Theoretical Virus: CDC Admitted They Made a Digital Virus of 30,000 Base Pairs Using 37 Actual Sample Base Pairs
- 5 SARS-CoV-2 the Theoretical Virus: European Corman-Drosten Paper Used an “In Silico” Genome of an “In Silico” Virus
- 6 SARS-CoV-2 the Theoretical Virus: UK Government Couldn’t Produce Evidence
- 7 SARS-CoV-2 the Theoretical Virus: Australian Government Couldn’t Produce Evidence
- 8 SARS-CoV-2 the Theoretical Virus: Canadian Government Couldn’t Produce Evidence
- 9 SARS-Cov-2 the Theoretical Virus: Over 40 Institutions Worldwide Can’t Answer the Basic Question
- 10 SARS-Cov-2 the Theoretical Virus: Previous Coronaviruses Have Not Been Isolated 
+1 SARS-CoV-2 the Theoretical Virus: The Virus Has Never Been Isolated According to Koch’s Postulates or River’s Postulates
+2 SARS-CoV-2 the Theoretical Virus: Top Chinese Scientist Admitted They Never Isolated the Virus
+3 SARS-CoV-2 the Theoretical Virus: CDC Stated No Quantified Isolate Was Available
+4 SARS-CoV-2 the Theoretical Virus: CDC Admitted They Made a Digital Virus of 30,000 Base Pairs Using 37 Actual Sample Base Pairs
+5 SARS-CoV-2 the Theoretical Virus: European Corman-Drosten Paper Used an “In Silico” Genome of an “In Silico” Virus
+6 SARS-CoV-2 the Theoretical Virus: UK Government Couldn’t Produce Evidence
+7 SARS-CoV-2 the Theoretical Virus: Australian Government Couldn’t Produce Evidence
+8 SARS-CoV-2 the Theoretical Virus: Canadian Government Couldn’t Produce Evidence
+9 SARS-Cov-2 the Theoretical Virus: Over 40 Institutions Worldwide Can’t Answer the Basic Question
+10 SARS-Cov-2 the Theoretical Virus: Previous Coronaviruses Have Not Been Isolated 
