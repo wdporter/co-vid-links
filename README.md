@@ -47,3 +47,12 @@ https://thefreedomarticles.com/10-reasons-sars-cov-2-imaginary-digital-theoretic
 8. Canadian Government Couldn’t Produce Evidence
 9. Over 40 Institutions Worldwide Can’t Answer the Basic Question
 10. Previous Coronaviruses Have Not Been Isolated 
+
+---
+
+["Farce mask: it's safe for only 20 minutes"](https://www.smh.com.au/national/farce-mask-its-safe-for-only-20-minutes-20030427-gdgnyo.html)
+an article from 2003 in the SMH saying face masks are not helpful.
+What has changed since then?
+
+
+
