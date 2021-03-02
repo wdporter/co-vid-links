@@ -51,8 +51,17 @@ https://thefreedomarticles.com/10-reasons-sars-cov-2-imaginary-digital-theoretic
 ---
 
 ["Farce mask: it's safe for only 20 minutes"](https://www.smh.com.au/national/farce-mask-its-safe-for-only-20-minutes-20030427-gdgnyo.html)
+
 an article from 2003 in the SMH saying face masks are not helpful.
+
 What has changed since then?
 
+---
+
+Facemasks in the COVID-19 era: A health hypothesis
+
+https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7680614/
+
+---
 
 
