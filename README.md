@@ -64,4 +64,10 @@ https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7680614/
 
 ---
 
+“they would never do that…”
+
+https://en.wikipedia.org/wiki/Tuskegee_Syphilis_Study
+
+---
+
 
