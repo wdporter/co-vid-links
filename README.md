@@ -69,5 +69,9 @@ https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7680614/
 https://en.wikipedia.org/wiki/Tuskegee_Syphilis_Study
 
 ---
+The specific and significant COVID-19 risk of ADE should have been and should be prominently and independently disclosed to research subjects currently in vaccine trials, as well as those being recruited for the trials and future patients after vaccine approval, in order to meet the medical ethics standard of patient comprehension for informed consent.
 
+https://pubmed.ncbi.nlm.nih.gov/33113270/
+
+---
 
