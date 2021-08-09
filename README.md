@@ -75,3 +75,11 @@ https://pubmed.ncbi.nlm.nih.gov/33113270/
 
 ---
 
+A doctor tells his school board about the bad science
+
+https://streamable.com/wqf3gt
+
+---
+
+---
+
