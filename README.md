@@ -81,5 +81,9 @@ https://streamable.com/wqf3gt
 
 ---
 
+Letter from English doctors to government
+
+https://www.covid19assembly.org/doctors-open-letter/
+
 ---
 
