@@ -115,3 +115,16 @@ Once I have received the above information in full and I am satisfied that there
 
 I would also advise that my inalienable rights are reserved.
 
+---
+1.Religious Beliefs vs. Personal/Conscience Beliefs - Only mention that is "based upon my deeply held and sincere religious beliefs." Do not state anywhere in your form or letter that it is due to your "personal beliefs or conscience." While I think this is ridiculous and people can and should believe what they want, it is smart to ONLY keep it to "deeply held and sincere religious beliefs" so that any grey area is removed. I recommend using the Bible as the basis for this and state that it is the literal and direct word of God and Jesus Christ and it cannot be wrong.
+State you are Christian, not Catholic - Not all Christians are Catholic and Catholics follow the Pope and his word. Not all Christians recognize the authority of the Pope. As we know, the Pope loves the vaccine. I cannot comment any other religions, sorry.new
+
+Use the fetal cell line argument - This is pretty straightforward and a well known fact now. All jabs used fetal stem cell lines from aborted babies in either the early development and/or testing of said vaccines. State how it would be a sin due to Bible's stance on abortion.
+State that you are aware other medications use fetal stem cells and that you do not use those either - Again, pretty straightforward. But you have to play this like chess. Counter their moves on why they would reject your letter/form. I don't care if it is true or not, do what you need to do to survive. Make it clear that you do not consume these other medications either for the same reason.
+Cite Title VII of the Civil Rights Act and the First Amendment of the Constitution - Just state these and how you are exercising your rights regarding freedom of religion and to not honor it would be discrimination and violation of your rights.
+Cite Many Bible Scriptures - Wherever you are making points, be sure to provide direct quotations from the Bible and why it means you cannot take the jab. This helps prove your sincerity and that you read and follow the direct literal words of the Bible. No other judgement by your employer can be made from these. This is a very useful tool to help you find relevant Bible verses: https://www.openbible.info/topics/. Just type in your keyword or phrase and it will show scripture relevant to that. For example, type "truth" or "abortion" or "sin" and it will show useful quotes.
+Do not mention anything about vaccine (in)effectiveness, conspiracies, anti-COVID stuff, personal views, etc. - This is to cover your ass and refers back to point #1. Keep it only to your "deeply held and sincere religious beliefs" and nothing else.
+Either consult a lawyer or be very smart and legal about how you write your form/letter - For example, if your form asks for how long is the accommodation request for, be sure to state "duration of employment."
+Be explicit that this is an exemption from the COVID-19 vaccine and any boosters - Be sure to mention boosters to cover your ass again.
+Write it entirely in your own words - Do not copy any other letter you see or use a template. Write it in your own words to keep it as "sincere" as possible. Remove any doubt your employer can make.
+
